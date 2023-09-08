@@ -7,8 +7,7 @@
 - 💼 Atualmente, estou disponível para trabalhos de design freelance.
 - 💬 Você pode entrar em contato comigo para discutir projetos ou solicitar um orçamento.
 
-  
 ## Contato
-- 💼 LinkedIn: [[LinkedIn]()]([https://www.linkedin.com/in/renanneduardo/?originalSubdomain=br](https://www.linkedin.com/in/renanneduardo/?originalSubdomain=br))
+- 💼 LinkedIn: [Meu perfil do LinkedIn](https://www.linkedin.com/in/renan-eduardo-0641b8170/?originalSubdomain=br)
 
 Vamos trabalhar juntos para criar designs incríveis para o seu projeto! Entre em contato comigo para discutir suas necessidades de design e obter um orçamento personalizado.
