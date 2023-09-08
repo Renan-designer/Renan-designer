@@ -9,6 +9,6 @@
 
   
 ## Contato
-- 💼 LinkedIn: [[seu perfil do LinkedIn](https://www.linkedin.com/in/renanneduardo/?originalSubdomain=br)](linkedin)
+- 💼 LinkedIn: [[LinkedIn]()]([https://www.linkedin.com/in/renanneduardo/?originalSubdomain=br](https://www.linkedin.com/in/renanneduardo/?originalSubdomain=br))
 
 Vamos trabalhar juntos para criar designs incríveis para o seu projeto! Entre em contato comigo para discutir suas necessidades de design e obter um orçamento personalizado.
