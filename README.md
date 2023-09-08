@@ -9,7 +9,6 @@
 
   
 ## Contato
-- 📫 Como me encontrar: [insira-seu-email@aqui.com](mailto:seu-email@aqui.com)
-- 💼 LinkedIn: [seu perfil do LinkedIn](link-para-o-seu-linkedin)
+- 💼 LinkedIn: [[seu perfil do LinkedIn](https://www.linkedin.com/in/renanneduardo/?originalSubdomain=br)](linkedin)
 
 Vamos trabalhar juntos para criar designs incríveis para o seu projeto! Entre em contato comigo para discutir suas necessidades de design e obter um orçamento personalizado.
